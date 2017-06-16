@@ -1,0 +1,1 @@
+# I_want_5000_trillion_yen.
