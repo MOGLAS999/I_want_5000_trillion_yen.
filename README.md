@@ -1,1 +1,1 @@
-# I_want_5000_trillion_yen.
+# 5000兆円欲しい!
